@@ -37,7 +37,7 @@ From 2019-08-12 to 2019-08-16
 
 ---
 
-### 我们爱运动（执楠健身社期待你的加入
+### 我们爱运动（扫了就能瘦的二维码
 
 ![x](http://qiniu.daguchuangyi.com/fitness.jpeg)
 
